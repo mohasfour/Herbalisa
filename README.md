@@ -1,2 +1,0 @@
-# Herbalisa
-guide
